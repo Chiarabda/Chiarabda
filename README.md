@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Chiarabda
-- 👀 I’m interested in traveling and art
-- 🌱 I’m currently learning Graphic design and creative computing 
-- 💞️ I’m looking to collaborate on anything Graphic Design related ! 
+- 👀 I’m interested in traveling and seeign as much of the world as i can !
+- 🌱 I’m currently learning Graphic Design and Creative Computing 
+- 💞️ I’m looking to collaborate on anything Graphic Design related, im currently working a few NFT designs as well! 
 - 📫 How to reach me... via email - chiarapesci2000@gmail.com or instagram chiarabda_
 
 <!---
